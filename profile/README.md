@@ -7,4 +7,4 @@ Master the art of attracting women with confidence and finesse. Mikie.AI is your
 - **Chat**: Ask questions the way you want using our material through AI
 - **Registration**: No fuss sign up, we made it simple
 
-Visit [mikie.ai](https://mikie.ai) to learn more and start being successful with women!
+Visit [mikie.ai](https://mikie.ai) to learn how to be successful with women!
